@@ -143,6 +143,8 @@ The data was collected from multiple structured reports:
 For inquiries or feedback, feel free to connect:  
 **Omar Wahby**  
 📧 omarwahby35@gmail.com 
-🔗 [LinkedIn](www.linkedin.com/in/omarwahby)
+
+🔗 [LinkedIn Profile](https://www.linkedin.com/in/omarwahby)
+
 
 ---
